@@ -1,4 +1,4 @@
-# Texas Ranger's Outlaws **1v1 Duels Detroit**
+# Chuck Norris' Outlaws **1v1 Duels Detroit**
 
 ## Do's
 - Be respectful
@@ -13,5 +13,6 @@
 
 **Like designing Discord servers?**
 
-### <a id="Help Wanted! - Texas Ranger's Discord">https://discord.gg/Rzv5zMS2Eb</>
+#### <a id="Help Wanted! - Texas Ranger's Discord">https://discord.gg/Rzv5zMS2Eb</>
 
+# ***Peace was never an option***
