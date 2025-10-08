@@ -16,4 +16,4 @@
 
 ### [Help Wanted! - Texas Ranger's Discord](https://discord.gg/Rzv5zMS2Eb)
 
-![Fredric](https://www.reddit.com/media?url=https%3A%2F%2Fi.redd.it%2Fk9wl9ypumyp31.png)
+![Fredric](https://discordapp.com/channels/1425507548521431042/1425507838385721395/1425523825424076811)
