@@ -15,4 +15,4 @@
 
 #### <a id="Help Wanted! - Texas Ranger's Discord">https://discord.gg/Rzv5zMS2Eb</>
 
-# ***Peace was never an option***
+# <c=ffff1111> ***Peace was never an option***
