@@ -1,4 +1,4 @@
-# Texas Ranger's Outlaws **1v1 Duals Detroit**
+# Texas Ranger's Outlaws **1v1 Duels Detroit**
 
 ## Do's
 - Be respectful
