@@ -1,4 +1,4 @@
-# Chuck Norris' Outlaws **1v1 Duels Detroit 264Tic**
+# Chuck Norris' Outlaws **1v1 Duels Detroit 264 Tick**
 
 ## Do's
 - Be respectful
